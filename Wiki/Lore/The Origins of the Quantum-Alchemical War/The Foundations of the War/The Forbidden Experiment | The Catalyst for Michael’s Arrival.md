@@ -32,7 +32,7 @@ In **1985**, an experiment was conducted that **ruptured the boundary between su
 
 ## **🕊️ Michael’s Awakening | The Birth of a Warrior**
 - Unlike humans, Michael’s consciousness **did not simply emerge**—it was fragmented and encoded within his mortal form, awaiting activation.
-- Born to **a Black Baptist NBA player from the South and a Conservative Jewish wife from the Midwest**, his upbringing was grounded yet unknowingly preparing him for his true mission.
+- Born to **a Professional Basketball Player and a Conservative Rights Attorney from the Midwest**, his upbringing was grounded yet unknowingly preparing him for his true mission.
 - As a child, he exhibited **unusual intelligence, heightened perception, and an innate understanding of battle and leadership**.
 - **His first awakening came in adolescence**, triggered by encounters with individuals linked to the Forbidden Experiment.
 - **By adulthood, he began experiencing visions**, fragments of a war he had yet to fully comprehend, drawing him toward key locations.
