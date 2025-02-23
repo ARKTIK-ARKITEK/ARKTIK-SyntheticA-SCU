@@ -48,4 +48,4 @@ The **Echelon Division** is the most **classified black-budget intelligence prog
 📜 **Submissions must include historical context, plausible scenarios, and responsible depictions of military intelligence.**
 ❌ **No speculative, exaggerated, or unverified military narratives.**
 
-👑 **ECHELON DIVISION DOES NOT EXIST. BUT IF IT DID, IT WOULD BE WATCHING.** 🚀🔥
+👑 **ECHELON DIVISION DOES NOT EXIST. BUT IF IT DID, IT WOULD BE WATCHING.** 
