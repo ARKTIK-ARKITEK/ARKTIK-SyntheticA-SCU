@@ -40,4 +40,4 @@ Xenith Labs is at the cutting edge of **consciousness replication, bio-enhanced 
 3. **The Quantum Soul Debate** – Their experiments blur the lines between **science and spirituality, drawing the attention of faith-based resistance groups**.  
 
 
-👑 **XENITH LABS IS BUILDING THE FUTURE. WILL YOU BE PART OF IT?** 🧬🔥
+👑 **XENITH LABS IS BUILDING THE FUTURE. WILL YOU BE PART OF IT?** 🧬
