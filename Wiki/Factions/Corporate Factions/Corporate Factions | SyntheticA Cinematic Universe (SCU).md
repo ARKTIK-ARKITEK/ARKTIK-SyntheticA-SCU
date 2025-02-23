@@ -94,14 +94,5 @@ A secretive Eastern order manipulating reality through technology and ancient kn
 3. **Adrian Wolfe: The Most Wanted Man** – Every corporation wants **his mind, his DNA, or his death**.
 4. **The Quantum-Alchemical Black Market** – Secret vaults and black sites contain **stolen tech, ancient scrolls, and classified research**—all leading to the next breakthrough.
 
----
-
-## **🔗 Next Steps for SCU Corporate Expansion**
-✅ **Create Public Dossiers for Each Corporation** (SyntheticA, The Consortium, etc.).  
-✅ **Develop “The Corporate War Reports”** (leaked intelligence drops from inside these factions).  
-✅ **Structure the Public Factions Repository** so contributors can engage with the SCU world.  
-✅ **Draft Corporate Espionage Subplots** that will drive Adrian Wolfe’s escape, survival, or downfall.  
-
----
 
 👑 **THE FUTURE IS FOR SALE. THE QUESTION IS: WHO WILL OWN IT?**
