@@ -13,6 +13,7 @@ The **Celestial Factions** in SCU represent the unseen, higher-dimensional force
 │── watchers.md   # The original overseers and their divided allegiances
 │── remnants.md   # The hidden sect still fighting for balance
 │── forsaken.md   # Fallen entities who seek dominion through quantum manipulation
+│── incarnated_legion.md   # The celestial warriors reborn as humans
 ```
 
 ---
@@ -37,6 +38,13 @@ The **Celestial Factions** in SCU represent the unseen, higher-dimensional force
 - **Key Figures:** The Veilbreaker, Nahash the Architect, and the Shadowed Seraphs.
 - **Research Basis:** Scriptural references, comparative mythology, and historical angelology studies.
 
+### **🌍 The Incarnated Legion**
+- **Role:** Celestial warriors forced to take human form through birth, awakening slowly to their divine mission.
+- **Background:** To maintain cosmic balance, Michael and his team entered the human plane, fragmented across time and space.
+- **Mission:** Locate and reunite all celestial operatives who entered through birth before Lucifer and his forces achieve full dominion.
+- **Challenges:** Some operatives were born decades apart, while one remained trapped in subatomic consciousness, later emerging as Michael's own son.
+- **Research Basis:** Rooted in theological concepts of angelic descent, reincarnation in esoteric traditions, and sub-quantum consciousness studies.
+
 ---
 
 ## **🔗 Contribution Guidelines**
@@ -45,3 +53,4 @@ The **Celestial Factions** in SCU represent the unseen, higher-dimensional force
 ❌ **No purely creative freeform interpretations or ungrounded speculation.**
 
 👑 **THE WAR IN HEAVEN NEVER ENDED. NOW, EARTH IS THE FINAL BATTLEGROUND.** 
+
