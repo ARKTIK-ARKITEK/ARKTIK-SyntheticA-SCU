@@ -6,12 +6,6 @@ Welcome to the **Lore Index** of the **SyntheticA Cinematic Universe (SCU)**. Th
 
 ## **📂 Lore Categories**
 
-### **🛡️ The Quantum-Alchemical War & Forbidden Knowledge**
-- [The Origins of the Quantum-Alchemical War](./Quantum_Alchemical_Origins.md) – The first discovery of sub-quantum forces and the secret war that followed.
-- [The Fall of Amarna](./Fall_of_Amarna.md) – The destruction of Akhenaten’s singularity experiment and its impact on history.
-- [Solomon’s Hidden Codex](./Solomonian_Codex.md) – How the wisdom of Solomon encoded the keys to sub-quantum mastery.
-- [The Custodians & The First Engineers](./Custodians_vs_Engineers.md) – The divide between those who sought to protect knowledge and those who sought to weaponize it.
-
 ### **⚔️ The Celestial Orders & The Watchers**
 - [The Descent of Michael](./Descent_of_Michael.md) – The moment Michael received orders to enter the physical realm.
 - [The Watchers & The First Rebellion](./Watchers_Rebellion.md) – The Watchers’ interference in human history and their betrayal.
